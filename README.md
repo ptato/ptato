@@ -13,4 +13,4 @@ in my spare time, i'm currently working on [ha](https://github.com/tato/ha) and 
 
 you can contact me on telegram [@ptato](https://t.me/ptato)
 
-i'm also on rym [@supok](https://rateyourmusic.com/~supok) and instagram [@pablotat0](https://instagram.com/pablotat0)
+i'm also on rym [@supok](https://rateyourmusic.com/~supok), linkedin [@ptato](https://linkedin.com/in/ptato) and instagram [@pablotat0](https://instagram.com/pablotat0)
